@@ -1,5 +1,5 @@
 ##### What is this? #####
-This is a "creative branding" project titled "Made in Sierra Leone" that was initiated and sponsored by LAM-TECH Consulting https://lamtech.sl based in Freetown, Sierra Leone on behalf of the people of Sierra Leone.
+This is a "creative branding" project titled "Made in Sierra Leone" that was initiated and sponsored by LAM-TECH Consulting https://lamtech.sl on behalf of the people of Sierra Leone.
 This IS NOT A Government of Sierra Leone Initiated or sponsored project. No funding was received from any outside donor, company, government or individual.
 
 ##### Project Background Information #####
